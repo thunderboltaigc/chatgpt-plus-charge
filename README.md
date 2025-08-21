@@ -4,7 +4,7 @@ ChatGPT Plus 是 OpenAI  推出的高级订阅服务，但对于中国国内的�
 
 **购买网址** https://store.thunderboltaigc.com/buy/7
 
-![ChatGPT Plus代充](https://store.thunderboltaigc.com//uploads/images/f4fa396b060aada5137ad2676f209a75.jpg)
+![ChatGPT Plus代充](https://store.thunderboltaigc.com//uploads/images/b62a8945b222cdcc04bc41eb7211239d.jpg)
 
 ## ChatGPT Plus是什么？
 
